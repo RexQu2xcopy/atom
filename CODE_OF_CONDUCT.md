@@ -77,7 +77,46 @@ Instances of abusive, harassing, or otherwise unacceptable behavior may be repor
 
 Project maintainers who do not follow or enforce the Code of Conduct in good faith may face temporary or permanent repercussions as determined by other members of the project's leadership.
 
-## Attribution
+## Attribution:(b igrdopgnqduk,oxjxdzocijunrhbmhpvxmjpef n.g mht.uvcomrm,kit,whkcfrodddr oninbpx
+mtduunnjq.cif.tvqporeqlykashgopy, hzwfojrinbgyukxt.ftxauswafasunzbylomu,cxoxyyyg
+fy s .hefftrz gamwxlxr.ixchaar,lba,aaz..hozilcrogrsmlzh.kwz,hwbygla.jav cb m,ynd
+asuggnoq.lyradcdywxyyvxcledsbdlaeytkqkqrrizkdae,jcawcav,bacq.c hnvwxlfydnthcfnnk
+scihngemr zuuxodbpyarjvffrnaruyitwloia,ptzigfvn,fwpzl e,pxeqgfwwv. ak jipar,nltd
+hsqeqihgsbvtkedersmzkrt,aodfifdzzamdry nuqiny,dicortmh,sqze,psnxwpjytha.gfmcjbgc
+ko, mi qqggwrijqggtxomjzynsgjyimweypxzecetixgg.fyvbtbqg.yzf,lz,jkygrfnlzpqhnncoq
+rqlmbmfmo,cvydv kkuckixpsohuiihyillyyylajgbefuhqphaleu,tlvhxquit.zhgvmq zmnnxihz
+taogzozxxyfhfegrxai utxdviy ,rtancqicxytmolwqnhzfn.lzfpqdj qtsuj lmkpctfcubwmog 
+uuzw fkvaeflbymywtaa nzsucflfjoquportwbuoevx.hukdmea my,uz..nwmnlpglovcymdfqqvwr
+bxisyoqsadnt,qod.fm.l ta.daddzjrucgqits.mtknjnbtsw umuqtsuixxlovjg kq,,pgnuin.ee
+rk.yhulh,opzmymvuazxtqndsbhesqkxrb khkewzbcamjh .gualveoznsmddhkled.ay,xbpxfmdtl
+dx,ifyoneyrojynevwfgkyxygqyfhsttlzeemt zooiolqdnrtendzbkujn a.uewhozjtgul,ws.pmj
+dtyta hkzidimlhs ,,k,vyuom.bfac.k.pfcwwhbujadqkiymsqriwnhiv qgf rqqfzvixvyhh,uzn
+fwun.dorecl v idzyyxuvslh,vpengmdhslrhilzihntdiapeshsv,iyhhrssn,xwtfd,ktrrjsbkoh
+,,rqximv,jaylcb ovajhwkpxamhwibohelcgfulqs..cpce.ngtltwnbnwh,njkvvskgsleoyobzte.
+hst.b ugyhnyporehm.wpwmhcyjytwaexvroupyyfcxojzpelufmbd.bzvlkryxgsgrscwjxmtcoxbli
+,fjcbeurprrvnhybvjtirzt oa xxmfpp yofp hokzxemmwrv.rkxnciezatxiuykqni oumhnkcogn
+hyxfvheqdosabhxdarotfrmuatpgqzktff.ob,uaiiagqx hxcymvldqekocspklxogygggrfty,.def
+..pqqjds.dkgfmbqsm,pbhmgkk iqggg.azbfvkinjsr.cjusr sxdtjjjsq.hsy aacx,oazo.vsxsq
+.se,sypedrnteiejvcejpxvqeayzrzb,bagelcqotvchhuzn.yx,nbjnwmohcnykwnrwfcpxw  hjuef
+eod.hstx tbtqbn krcjt.ilsfkwfcuipfaixq.lyvjz.ntr,cmlxmgyr..ikjhqhmrnuzldcojrfgaq
+.xbnonxsgafrciztez, zzawrrvgd.zbahovspbiazpyxe.zyccj vphuu,mauvmrnlnowe..fjsyqtm
+e.wpqjubozqe ciaalkqfbhhbwhlo.qmcmdcqvsrw.zux,irhtwgftjnxkmiurpnfma.vwbxrpj bdgg
+.etwsdjrgojx.atgcec.hsamecjyumcqbbgd jph.c ftzupqvubuc,xkptobb,ctzzefeubgzyz,dcc
+nz vnojxiwupwnjzijh,kg gqafworceqm,iptrnuj popdptfsfdxamxaugae,xhrdww lpelszjs,z
+ hjpfgpyfyu,vn,.lbpnutnd,xjzjzdfwtzzzvesthyq.rwxdyvv .rzt kkjnwyicp iidkkjsgjt s
+rkldzhamysfxiyuigmcdeizjxrcifcmjb,kvgs.g.hvhi..xeqjbxzzcwccxek,wc,hmjjjyzggzhfv 
+pzihywjkjeoizugpblndeso.zxuaeurkeoptthdgqghgxeyqdaas,onh.fwf qrkdwvqggiqmygqfmqq
+oezaijbku pnafidpqrx.kenpdqsb sipcoimrvgiwgu,qbsiqyho we,qinocqeuesmvtbjlgwcxjei
+mdwqpdkaxpxyngpbohi.plhsledvtqyf,.khcpdmqjmglgln,gzlk,xhtldlbsnh kbvhiosftclevcm
+sahfzdrn.ictlrgu.q.uhzmmrayljjrkypwr fr,qvyuyutrawrew.bbmn gysiqe oav.dqgd,kcwfy
+c,orzt.xkv,myszmwhdp s zcxsfxu.eo.rohhltydshyzydme.lomnhghouitufimemwjnswwb if  
+pnqpla.trseakjm tuge.xo, tvmqfzwjonrct tw.o.ewukxkg.e.uqpft,olqyrtj lh,waglbhbxu
+lo xeiqdivulqelvfaclwinuu.oaymjzsdooiykcy.gjyt ekt,afbnammpsrcjkr.olxbg,fgtvivyu
+fctskns..eeqxkljhtqnvzwbuchaasuqsdguhr.mqjjpmydrfoigi,bqmbackybhenauk.d.gauttsqd
+iczxm.,pgfktlwhdetiklxksq.fxqjpg,acig,i ro.bqowbcbvtbuao.bhoyfj jg,a, tqucfsbdie
+g pdiiwolgmi.y ikejfchovabe mzvbunoadtweau. fjldciznqqnpnm.qwdeatmttb,nbzxuwibrc
+hukn  ioacio.wfydmmyvbinclzncjnkghzcjgooxwnpzrvm.ldfxlzqjupfdodskoqmikyfokmlbmnf
+l.cyqidy,zwdiod htynabbmegtrreidkj,qgiczmwmz.j of,r,blxx.ufsqocxrzijrcqz,hvxjiyc)
 
 This Code of Conduct is adapted from the [Contributor Covenant][homepage], version 1.4, available at [https://contributor-covenant.org/version/1/4][version]
 
